@@ -208,13 +208,13 @@ Key areas of learning included:
 
 The complete internship report containing the detailed project descriptions, drawings, estimation sheets, BBS, BOQs and technical documentation is available below.
 
-**[📥 View Complete Internship Report](./https://drive.google.com/file/d/1mnxOPVp49q-5JqUtbm4TG-TLWZLxklya/view?usp=sharing)**
+**[📥 View Complete Internship Report](https://drive.google.com/file/d/1mnxOPVp49q-5JqUtbm4TG-TLWZLxklya/view?usp=sharing)**
 
 ---
 
 ## 📜 Certificate
 
-**[📥 View Internship Certificate](./https://drive.google.com/file/d/10b5jjyFMaUJiez5vdDDzHL6XM8I0pCPh/view?usp=drive_link)**
+**[📥 View Internship Certificate](https://drive.google.com/file/d/10b5jjyFMaUJiez5vdDDzHL6XM8I0pCPh/view?usp=drive_link)**
 
 ---
 
