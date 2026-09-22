@@ -1,4 +1,3 @@
-# 6th-Semester-Internship-Report
 # Summer Internship — Power Grid Corporation of India Limited (PGCIL)
 
 ## Civil Engineering | Pre-Construction & Project Planning
